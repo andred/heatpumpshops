@@ -202,3 +202,8 @@
  - https://czystyklimat.pl
 
 ## Unsorted
+
+# shipping
+- https://www.fercam.com/de/dien…elgutspeditionen-477.html
+- https://my.cargoboard.com
+- https://www.rhenus.group/get-a-quote-roadfreight-bulkload/
