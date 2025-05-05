@@ -40,6 +40,7 @@
 - https://www.mercaclima.es
 - https://instaladoratermica.com
 - https://www.airefrio.com/
+- https://www.climagar.com/
 
 ## Portugal
 - https://klima.pt
